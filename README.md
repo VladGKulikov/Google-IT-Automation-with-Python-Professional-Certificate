@@ -2,7 +2,7 @@
 
 ### [My Certificate URL](https://coursera.org/share/66f9ffae04db1924be856544492eb4ae)
 
-![image](https://user-images.githubusercontent.com/98630446/156115037-6bfa4bde-f158-41e9-916c-0230aacce2eb.png)
+![image](https://user-images.githubusercontent.com/98630446/156277718-5d9f36c3-e36e-4351-9a6a-c4ce85412f80.png)
 
 ### [The badge](https://www.credly.com/badges/ea97551a-534e-4890-b9b3-a5b4d3b9796f/public_url)
 
